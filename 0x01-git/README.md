@@ -1,1 +1,1 @@
-new beginnings
+New beginnings lies ahead.
